@@ -13,6 +13,12 @@
 🖼️ Graphics Designing Skills
 
 👨🏻‍🎨Adobe Photoshop ; Adobe Illustrator ; Corel Draw
+
+🏅 Achievement
+
+🏆|  National Bal Shree Awardee |⭐
+🏆|    Bihar Bal Shree Awardee  |⭐
+🏆|    Magadh Gaurav Awardee    |⭐
 <!---
 ankitraj035/ankitraj035 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
